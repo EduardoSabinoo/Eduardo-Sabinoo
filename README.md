@@ -7,5 +7,9 @@
 
 - Atualmente estou trabalhando.
 
+- Atualmente faço musculação.
+
 - Procurando estágio na área de tecnologia de informação.
+
+
 
